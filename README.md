@@ -113,4 +113,4 @@
 If you’re building something meaningful and want a passionate full-stack developer onboard,  
 **Let’s build together. 🚀**
 
-📩 **Email:** rounakkumar@gmail.com  
+📩 **Email:** rounakkumar13005@gmail.com  
